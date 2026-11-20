@@ -1,22 +1,47 @@
-.𖥔 ܁ ˖!── .✦
+$\color{#f00}{\textsf{Interact With Caution, we're very shy and overall can be startled if randomly approached, PLEASE whisper to interact first, then feel free to ask to cud/hide}}$
+$\Large\color{#f00}{\textsf{I block freely.}}$
+<img width="1200" height="602" alt="image" src="https://github.com/user-attachments/assets/b9700197-1956-4d3a-a68c-01e951cb73db" />
 
- .　•　★　*　　　　　°　　.　　🍔　　　°·　　•.     
 
-─── ･ ｡ﾟ☆: *.☽ .* :✦. ───
+   \- \- \- \- \- \- \- \- / / welcome !! / /  - - - - - - - -
 
-🍔　　.　　•.  　🏳️‍⚧️　°　.•　🫀　•　　.°•　　•　⭐　　 
+  
+⠀⠀  　⠀ the sin incarnate   ⋮  he . they　　 　  
 
-THESININCARNATE -- 
 
-He / They | sys, host fictkins | mostly here to be informative.
-- FICTKINS: 007n7(4saken), c00lkidd(NOT 4saken, hacker), Bob Velseb(SM), 2TIME(4saken)
-- Age: 5teen
-- **DNI preds, pdfs, anti-lgbtq, anti-trans, trump supporters, age players.**
-- personality: 
-- likes: dani(s/o), elliot(WAAPP, yumeship)
-- dislikes: loud noises, being touched, music cutting out, homophobia, racism, transphobia, bullies, etc
-- partner(s): dani<3
+⠀　　𐙚　　sys . ~40 members . fictk, yume 　 ₊  ◞　
 
-─── ･ ｡ﾟ☆: *.☽ .\* ✦. ───
+ 
+ ˙　　˳　　⁺　　/ /  some more information! // <3
 
-.　•　•　° ★　•  ☄.       ๏       •.      . 
+$\tiny\color{#f00}{\textsf{ ' nobody has to know ! ' /lyr}}$
+ 
+ 
+ fictk: c00lkidd(not forsaken), 007n7(4saken), noli(4saken), ivan(bad things), ticci toby(crp) . william afton . henry emily(both fnaf)
+
+ $\Large\color{#FF3131}{\textsf{DNI DOUBLE FICTK!}}$
+
+ 
+ . . now that you know that . . . . :D
+
+ $\color{#d688d1}{\textsf{PLEASE INTERACT! hypersharing. . .}}$
+ 
+ 
+ yume!: wpnz(smg4), elliot(WAAPP), noli(myth), Sebastian(pressure{SEE BELOW!!!!}), mafioso(dg+4saken)
+
+
+ !!!!!! HALT !!!!!!
+
+ $\color{#f00}{\textsf{DNI}}$
+
+
+^Ren supporters, you are disgusting supporting a woman who framed a man for something so disgusting, and has made herself very obvious she was doing it for clout and wanting to destroy Zeal's life
+
+ 
+ thank  you  for  reading  <  3 
+
+
+ 
+<img width="650" height="215" alt="image" src="https://github.com/user-attachments/assets/4acc0a2f-5520-4f78-90cc-a4af0e00cc36" />
+
+ 

@@ -21,7 +21,7 @@ $\Large\color{#f00}{\textsf{I block freely.}}$
 ⠀　　𐙚　　sys . ~40 members . fictk, yume 　 ₊  ◞　
 
  
- ˙　　˳　　⁺　　/ /  some more information! // <3
+ ˙　　˳　　⁺　　/ /  some more information! / / <3
 
 $\tiny\color{#f00}{\textsf{ ' nobody has to know ! ' /lyr}}$
 

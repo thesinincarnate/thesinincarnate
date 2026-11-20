@@ -3,6 +3,8 @@ $\color{#f00}{\textsf{Interact With Caution, we're very shy and overall can be s
 $\color{#f00}{\textsf{by the way. . . }}$
 
 $\Large\color{#f00}{\textsf{I block freely.}}$
+
+
 <img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/912b3c61-6e84-471a-8491-eb008897b3e6" />
 
 

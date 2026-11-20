@@ -1,9 +1,13 @@
 $\color{#f00}{\textsf{Interact With Caution, we're very shy and overall can be startled if randomly approached, PLEASE whisper to interact first, then feel free to ask to cud/hide}}$
 $\Large\color{#f00}{\textsf{I block freely.}}$
-<img width="1200" height="602" alt="image" src="https://github.com/user-attachments/assets/b9700197-1956-4d3a-a68c-01e951cb73db" />
+<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/912b3c61-6e84-471a-8491-eb008897b3e6" />
+
 
 
    \- \- \- \- \- \- \- \- / / welcome !! / /  - - - - - - - -
+
+
+   <img width="1198" height="555" alt="image" src="https://github.com/user-attachments/assets/f711bbe3-fa14-42a0-a861-d040c1c1d149" />
 
   
 ⠀⠀  　⠀ the sin incarnate   ⋮  he . they　　 　  
@@ -15,14 +19,21 @@ $\Large\color{#f00}{\textsf{I block freely.}}$
  ˙　　˳　　⁺　　/ /  some more information! // <3
 
 $\tiny\color{#f00}{\textsf{ ' nobody has to know ! ' /lyr}}$
+
+
+<img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/73c2a84a-0a63-4680-ab44-16bec7cabe8a" />
+
  
  
- fictk: c00lkidd(not forsaken), 007n7(4saken), noli(4saken), ivan(bad things), ticci toby(crp) . william afton . henry emily(both fnaf)
+ fictk: c00lkidd(not forsaken), 007n7(4saken), noli(4saken), ivan(bad things), ticci toby(crp) . william afton . henry emily(both fnaf), Bob Velseb(SM), Slasher(4saken)
 
  $\Large\color{#FF3131}{\textsf{DNI DOUBLE FICTK!}}$
 
  
  . . now that you know that . . . . :D
+
+ <img width="1199" height="557" alt="image" src="https://github.com/user-attachments/assets/68134148-643f-47ff-9083-270574fa560c" />
+
 
  $\color{#d688d1}{\textsf{PLEASE INTERACT! hypersharing. . .}}$
  
@@ -31,6 +42,9 @@ $\tiny\color{#f00}{\textsf{ ' nobody has to know ! ' /lyr}}$
 
 
  !!!!!! HALT !!!!!!
+
+<img width="1170" height="275" alt="image" src="https://github.com/user-attachments/assets/762bd6b9-9a52-46c6-86e1-234d3e5e6844" />
+
 
  $\color{#f00}{\textsf{DNI}}$
 

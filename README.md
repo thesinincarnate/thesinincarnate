@@ -1,4 +1,4 @@
-$\color{#f00}{\textsf{Interact With Caution, we're very shy and overall can be startled if randomly approached, PLEASE whisper to interact first, then feel free to ask to cud/hide}}$
+$\color{#f00}{\textsf{Interact With Caution, we're very shy and overall can be startled if randomly approached, PLEASE whisper to interact, by the way...}}$
 $\Large\color{#f00}{\textsf{I block freely.}}$
 <img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/912b3c61-6e84-471a-8491-eb008897b3e6" />
 

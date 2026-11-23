@@ -54,7 +54,7 @@ $\tiny\color{#f00}{\textsf{ ' nobody has to know ! ' /lyr}}$
  $\color{#f00}{\textsf{DNI}}$
 
 
-^Ren supporters, you are disgusting supporting a woman who framed a man for something so disgusting, and has made herself very obvious she was doing it for clout and wanting to destroy Zeal's life
+Visit my DNI here: https://docs.google.com/document/d/1Cs8-IX-6ohx3IVcRO-WFKdeUSJemLjhlXaJSClnBi5U/edit?usp=sharing
 
  
  thank  you  for  reading  <  3 

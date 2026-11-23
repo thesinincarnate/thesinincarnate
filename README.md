@@ -1,8 +1,8 @@
-$\color{#f00}{\textsf{Interact With Caution, we're very shy and overall can be startled if randomly approached, PLEASE whisper to interact}}$
+$\color{#f00}{\textsf{Interact With Caution, we're very shy, can't start convos on our own ,,, }}$
 
 $\color{#f00}{\textsf{by the way. . . }}$
 
-$\Large\color{#f00}{\textsf{I block freely.}}$
+$\Large\color{#f00}{\textsf{we block freely.}}$
 
 
 <img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/912b3c61-6e84-471a-8491-eb008897b3e6" />

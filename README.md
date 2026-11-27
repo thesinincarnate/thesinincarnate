@@ -5,6 +5,9 @@ $\color{#f00}{\textsf{by the way. . . }}$
 $\Large\color{#f00}{\textsf{we block freely.}}$
 
 
+   ![Profile Views](https://thesinincarnate.com)
+
+
 <img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/912b3c61-6e84-471a-8491-eb008897b3e6" />
 
 

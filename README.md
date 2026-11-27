@@ -9,7 +9,8 @@ $\Large\color{#f00}{\textsf{we block freely.}}$
 <img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/912b3c61-6e84-471a-8491-eb008897b3e6" />
 
 
-![Hits](https://hits.sh)
+<img src="https://komarev.com" alt="Profile Views" />
+
 
 
 

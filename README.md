@@ -48,7 +48,7 @@ $\tiny\color{#f00}{\textsf{ ' nobody has to know ! ' /lyr}}$
  $\color{#d688d1}{\textsf{PLEASE INTERACT! hypersharing. . .}}$
  
  
- yume!: wpnz(smg4), elliot(WAAPP), noli(myth), Sebastian(pressure{SEE BELOW!!!!}), mafioso(dg+4saken)
+ yume!: wpnz(smg4), elliot(WAAPP), noli(myth), Sebastian(pressure{zeal is innocent, ren framed him}), mafioso(dg+4saken)
 
 
  !!!!!! HALT !!!!!!

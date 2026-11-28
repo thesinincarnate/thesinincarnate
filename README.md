@@ -27,7 +27,7 @@ $\Large\color{#f00}{\textsf{we block freely.}}$
 ⠀　　𐙚　　sys . ~40 members . fictk, yume 　 ₊  ◞　
 
 
-[![Will Wood and the Tapeworms - Hand Me My Shovel, I'm Going In!](https://github.com/user-attachments/assets/7344df06-4078-42b7-83a1-016f20abc52f)](https://open.spotify.com/track/4DkKgGqqfx8C79RFo8ZuTl)
+[![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=g3vgemtnvqn0ixsx6m9k3ukvu&cover_image=true&theme=default&show_offline=false&background_color=121212&interchange=true&profanity=false&hide_remaster=false)](https://github.com/kittinan/spotify-github-profile)
 
  
  ˙　　˳　　⁺　　/ /  some more information! / / <3

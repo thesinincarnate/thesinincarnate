@@ -18,7 +18,7 @@ $\Large\color{#f00}{\textsf{we block freely.}}$
    \- \- \- \- \- \- \- \- / / welcome !! / /  - - - - - - - -
 
 
-   <img width="160" height="160" alt="image" src="https://github.com/user-attachments/assets/f711bbe3-fa14-42a0-a861-d040c1c1d149" />
+   <img width="736" height="414" alt="image" src="https://github.com/user-attachments/assets/f711bbe3-fa14-42a0-a861-d040c1c1d149" />
 
   
 ⠀⠀  　⠀ the sin incarnate   ⋮  he . they　　 　  
@@ -27,7 +27,8 @@ $\Large\color{#f00}{\textsf{we block freely.}}$
 ⠀　　𐙚　　sys . ~40 members . fictk, yume 　 ₊  ◞　
 
 
-<img width="1151" height="964" alt="Will Wood and the Tapeworms - Hand Me My Shovel, I&#39;m Going In!" src="https://github.com/user-attachments/assets/7344df06-4078-42b7-83a1-016f20abc52f" />
+[![Will Wood and the Tapeworms - Hand Me My Shovel, I'm Going In!](https://github.com/user-attachments/assets/7344df06-4078-42b7-83a1-016f20abc52f)](https://open.spotify.com/track/4DkKgGqqfx8C79RFo8ZuTl)
+
  
  ˙　　˳　　⁺　　/ /  some more information! / / <3
 

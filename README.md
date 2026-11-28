@@ -18,7 +18,7 @@ $\Large\color{#f00}{\textsf{we block freely.}}$
    \- \- \- \- \- \- \- \- / / welcome !! / /  - - - - - - - -
 
 
-   <img width="1198" height="555" alt="image" src="https://github.com/user-attachments/assets/f711bbe3-fa14-42a0-a861-d040c1c1d149" />
+   <img width="160" height="160" alt="image" src="https://github.com/user-attachments/assets/f711bbe3-fa14-42a0-a861-d040c1c1d149" />
 
   
 ⠀⠀  　⠀ the sin incarnate   ⋮  he . they　　 　  

@@ -1,3 +1,4 @@
+
 $\color{#f00}{\textsf{Interact With Caution, we're very shy, can't start convos on our own ,,, }}$
 
 $\color{#f00}{\textsf{by the way. . . }}$
@@ -25,6 +26,8 @@ $\Large\color{#f00}{\textsf{we block freely.}}$
 
 ⠀　　𐙚　　sys . ~40 members . fictk, yume 　 ₊  ◞　
 
+
+<img width="1151" height="964" alt="Will Wood and the Tapeworms - Hand Me My Shovel, I&#39;m Going In!" src="https://github.com/user-attachments/assets/7344df06-4078-42b7-83a1-016f20abc52f" />
  
  ˙　　˳　　⁺　　/ /  some more information! / / <3
 
